@@ -16,3 +16,5 @@ and to make our enviroment full of posetive energy and keep walking over proplem
 * **you will grow in your comunity and work**
 * **you will be open minded**
 * **the smile will never leave your face**
+
+[for a deeper information](https://www.brainpickings.org/2014/01/29/carol-dweck-mindset/)

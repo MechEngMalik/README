@@ -1,4 +1,5 @@
-  # Growth Mindest
+ 
+ # Growth Mindest
 
 ![happy life](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSEDOthZP8kDO9NziJgVIPq3o6_Cl0kEaNdiw&usqp=CAU)
 

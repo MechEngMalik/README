@@ -19,3 +19,8 @@ and to make our enviroment full of posetive energy and keep walking over proplem
 * **the smile will never leave your face**
 
 [for a deeper information](https://www.brainpickings.org/2014/01/29/carol-dweck-mindset/)
+
+_my name is **Malik Mahmoud Swayyed** Iam 28 Mechanical Engineer
+have a device with Windows 10 pro 64 bit
+programming was a hoppy for me but now with course i can do much more and learn what is usefull to start my way_
+[GitHub account](https://mechengmalik.github.io/README/)
